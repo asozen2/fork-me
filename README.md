@@ -30,7 +30,7 @@ Paula	Prada
 
 Waseem Shabout
 
-Anna Shimova
+Anna Shimova: I am a cool Sophomore.
 
 Arda Sozen
 
