@@ -6,7 +6,7 @@ Arpit	Bansal
 
 Josephine Boenawan
 
-James	Cantoni
+James	Cantoni - I'm James
 
 Jessica	Carson
 
