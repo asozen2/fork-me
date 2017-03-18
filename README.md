@@ -8,7 +8,7 @@ Josephine Boenawan
 
 James	Cantoni - I'm James
 
-Jessica	Carson
+Jess	Carson. I'm only Jessica when I'm in trouble.
 
 Amanda Chrisanty
 
